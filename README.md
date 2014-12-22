@@ -36,7 +36,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-THE VVHOLE Aphoriſmes of great HIPPOCRATES Prince of Phyſicians: Faithfully tranſlated into Engliſh 
+
 1. TO THE WORSHIPFVLL AND his worthy friend M. TIMOTHY CHALONER, a great louer of learning.
 
 1. To the vnderſtanding Reader.
